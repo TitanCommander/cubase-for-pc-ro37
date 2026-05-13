@@ -1,4 +1,4 @@
-# 
+# new Cubase for PC | Cubase for Windows Script | project-templates + sampler is the best Cubase for PC | Cubase for Windows script, featuring project-templates and sampler.
 
 
 
